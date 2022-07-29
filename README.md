@@ -1,6 +1,6 @@
 # Hi, I'm Empire.
 - I am Empire, a very cool scripter man pro
-- my discord is Empire#4946 and Empire#4946 only
+- my discord is Empire4946#1196, If termed then this will update
 - noob scripter
 
 # How do I be hot like you!!1
